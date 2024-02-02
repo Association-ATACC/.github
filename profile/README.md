@@ -35,7 +35,9 @@ rejoindre :
 Pour plus d'informations, n'hésitez pas à nous contacter :
 
 - **Email :** [Association.atacc@gmail.com](mailto:Association.atacc@gmail.com)
-
+- **Instagram :** Suivez-nous sur
+  [Instagram](https://www.instagram.com/instatacc/) pour les dernières mises à
+  jour.
 ---
 
 Nous sommes impatients de vous accueillir dans notre communauté ! Ensemble, 
